@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **musacanerkilic@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/canerkılıc](www.linkedin.com/in/canerkılıc)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
